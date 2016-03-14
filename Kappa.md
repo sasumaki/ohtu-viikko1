@@ -1,1 +1,1 @@
-Kappa Kappa Kappa Kippa
+Kuppa Kappa Kappa Kappa Kippa
